@@ -1,5 +1,5 @@
 
-Make sure you CAPS is off
+Make sure your CAPS key is off
 Make sure your speakers are on
 
 
